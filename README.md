@@ -1,0 +1,1 @@
+# verified-digital-collectible-registry
